@@ -1,1 +1,1 @@
-Digital And Discentralised Block-Chain-Technology
+Block-Chain-Technology
